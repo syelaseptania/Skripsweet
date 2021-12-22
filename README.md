@@ -1,0 +1,2 @@
+# Skripsweet
+Prediksi ubiquitination
